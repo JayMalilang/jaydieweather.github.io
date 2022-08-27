@@ -1,2 +1,0 @@
-# jaydieweather.github.io
-jefwgeuidhfhhfhufhehdehdhdhdhdhdhdheuuhkhchuhruifyh3ghecbhbweeukukjgbsbkjrgfvrgvref3
